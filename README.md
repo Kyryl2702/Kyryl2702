@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Kyryl2702
+- 👀 I’m interested in programs for turism
+- 🌱 I’m currently learning IN Kyiv university 
+- 💞️ I’m looking to collaborate on cult companies
